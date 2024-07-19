@@ -1,0 +1,1 @@
+# Parallels-Desktop-20.2.2-Crack
